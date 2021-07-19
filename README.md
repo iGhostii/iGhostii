@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @iGhostii
+- 👀 I’m interested in games like Minecraft and Roblox
+- 🌱 I’m currently starting to learn a bit of coding 
+- 💞️ I’m looking to collaborate on nothing tbh
+- 📫 How to reach me: just dont
